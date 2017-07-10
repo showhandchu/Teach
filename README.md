@@ -11,7 +11,7 @@
 混雙時，如果隊友比較強，就要找機會主動往前補位
 <a href="http://imgur.com/AHGApal"><img src="http://i.imgur.com/AHGApal.gif" title="source: imgur.com" /></a>
 </li>
-<li>後排殺球或切球時，另一位要上去補位，變成一前一後，前排的球都是前面人處理，如果後場打長球回去，就回到第1點情況
+<li>後排殺球或切球時，另一位要上去補位，變成一前一後，前排的球都是前面人處理，如果後場打長球回去，就回到第1點情況<br/>
 <a href="http://imgur.com/cG1soMv"><img src="http://i.imgur.com/cG1soMv.gif" title="source: imgur.com" /></a>
 </li>
 <li>前場人往後退時，後場人要盡快往前補位
